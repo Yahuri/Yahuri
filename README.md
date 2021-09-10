@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Yahuri
+- 👋 Hi, I’m @Yahuri!
 - 👀 I’m interested in bunnies!
 - 🌱 I’m currently learning how to make websites.
 - 💞️ I’m down to collaborate on games.
