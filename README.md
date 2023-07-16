@@ -2,4 +2,4 @@
 - 👀 I’m interested in bunnies!
 - 🌱 I’m currently learning how to make websites.
 - 💞️ I’m down to collaborate on games.
-- 📫 You can reach me through Twitter @Maidzai or on Discord @yuri#4672.
+- 📫 You can reach me through Twitter @Maidzai or on Discord @yahuri.
